@@ -4,7 +4,9 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=bossnetw0rkk" alt="bossnetw0rkk" /></a> </p>
 
-- Mən sizə İT Və PROGRAMLAMA'da kömək edə bilərəm! [KIBER AZ 🇦🇿](t.me/kiberazz)
+- Mən sizə İT Və PROGRAMLAMA'da kömək edə bilərəm! 
+
+-kanalım [KIBER AZ 🇦🇿](t.me/kiberazz)
 
 - 📫 Mənimlə əlaqə **T.me/bossnetworkk**
 
