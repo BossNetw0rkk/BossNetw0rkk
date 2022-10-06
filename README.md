@@ -8,7 +8,7 @@
 
 -kanalım [KIBER AZ 🇦🇿](t.me/kiberazz)
 
-- 📫 Mənimlə əlaqə **T.me/bossnetworkk**
+- 📫 Mənimlə əlaqə [BossNetworkk](t.me/BossNetworkk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
